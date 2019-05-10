@@ -4,7 +4,7 @@
 
 ## Электронная почта: boykov2002@ya.ru
 
-## VK: https://vk.com/vladimir.boyko2000**
+## VK: https://vk.com/nenadaetopisat
 
 **[ НАЗВАНИЕ ПРОЕКТА ]**
 
